@@ -1,2 +1,2 @@
 
-![challenge-accepted-meme](https://user-images.githubusercontent.com/23483887/92138618-819d3700-ee06-11ea-905c-df2822fc60d8.jpg)
+![challenge-accepted-meme](https://user-images.githubusercontent.com/9930843/98350432-3de7c900-2013-11eb-897b-7a5e12e86396.jpeg)
